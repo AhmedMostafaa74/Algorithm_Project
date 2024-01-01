@@ -1,0 +1,1 @@
+[The Famous Coin Change Problem and its Possible New Applications.pdf](https://github.com/AhmedMostafaa74/Algorithm_Project/files/13804680/The.Famous.Coin.Change.Problem.and.its.Possible.New.Applications.pdf)
